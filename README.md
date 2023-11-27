@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zxeq
-- 👀 I’m interested in Programming
+- 👀 I’m interested in Web Designer
 - 🌱 I’m currently learning Software Development
 - 💞️ I’m looking to collaborate on DELL Company
 - 📫 How to contact me hajek534@gmail.com
